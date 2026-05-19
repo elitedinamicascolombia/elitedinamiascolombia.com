@@ -1,1 +1,1 @@
-# elitedinamiascolombia.com
+# elitedinamicascolombia.com
